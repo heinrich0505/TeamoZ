@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TeamoZ
 - 👀 I’m interested in sleeping
-- 🌱 I’m currently learning sleeping
+- 🌱 I’m learning to sleep
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me ...
 
